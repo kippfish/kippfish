@@ -29,4 +29,5 @@
       Weezer, Red Hot Chili Peppers, Blink-182, Slipknot, Siouxsie and the Banshees, Dot Dot Curve, Trip Kissing, Caviar Noir, ETC!!
 
 okay bye dont be scared to talk to me
+
 free 2 spotify jam: [https://spotify.link/t0nK6e5Q0Wb](https://spotify.link/t0nK6e5Q0Wb)
