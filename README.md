@@ -16,7 +16,7 @@
 
 　　　　　　　　　　　if i don't answer what you say, i am NOT trying to ignore you!
         
-  　　　　　　　　　　　　discord, free to add: kippfish + FOLLOW MY INSTA(linked)!!
+  　　　　　　　　　　　discord, free to add: kippfish + FOLLOW MY INSTA(linked)!!
 
     Media I enjoy: PJO, E:TM, Identity V, South Park, Voltron LD, Date Everything, Servammp, Death Note, The Goldfinch, vkei,
            Oresama(miyavi), Marauders, Dead Plate + SIG, OMORI, Kingdom Hearts, TWST, BSD, Ninjago, TGCF, MHA, PJSK, SK8, etc.
