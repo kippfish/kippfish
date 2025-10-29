@@ -7,7 +7,7 @@
 　　　　　　　　　　　　　　　any ships can int　　　　　often offtab
              
 　　　
-　　　　　i am 16. please do not interact with me if you are an adult or younger than 14.　
+　　　　i am 16. please do not interact with me if you are an adult or younger than 14.　
 　　
 
 　　　　　　i get very uncomfortable with other nicos around, so doubles please dni - i block freely.
