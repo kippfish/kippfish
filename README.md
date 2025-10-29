@@ -10,7 +10,7 @@
 　　　　i am 16. please do not interact with me if you are an adult or younger than 14.　
 　　
 
-　　　i get very uncomfortable with other nicos around, so doubles please either dni or iwec. i block freely.
+　　　i get very uncomfortable with other nicos around, so doubles please dni - i block freely.
 
 　　　　i have severe social anxiety(diagnosed) and suspected chronic fatigue; please be patient with me. 
 
