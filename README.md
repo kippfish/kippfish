@@ -11,7 +11,8 @@
 　　
 
 　　　　　　i get very uncomfortable with other nicos around, so doubles please dni - i block freely.
-　　　　　　　　　　　　　　DO NOT COPY MY PONIES!! Please ASK! if you are going to use as inspo.
+      
+　　　　　　　　　　　　DO NOT COPY MY PONIES!! Please ASK! if you are going to use as inspo.
     
 　　　　i have severe social anxiety(diagnosed) and suspected chronic fatigue; please be patient with me. 
 
