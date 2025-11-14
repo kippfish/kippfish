@@ -1,9 +1,9 @@
 <p align="center">
   <img width="733" height="407" alt="image" src="https://github.com/user-attachments/assets/c876f66c-251b-4053-9def-ac967e9663b4" />
 
-　　　　　　　　　　　　　　nico di angelo 　　　　irl　　　　　he/hymn 
+<p align="center"> nico di angelo 　　　　irl　　　　　he/hymn 
 
-　　　　　　　　　　　　　　　　iwc 　　　 c+h encouraged 　　　 oti　　
+<p align="center"> iwc 　　　 c+h encouraged 　　　 oti　　
                
 　　　　　　　　　　　　　　　any ships can int　　　　　often offtab
              
