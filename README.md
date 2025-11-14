@@ -7,7 +7,7 @@
 　　　　　　　　　　　　　　　any ships can int　　　　　often offtab
              
 
-  　　　　<a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31dijzczo5lfhxmq6mr3nalipx6e&redirect=true">
+  　　　　　　　　<a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31dijzczo5lfhxmq6mr3nalipx6e&redirect=true">
    　　　　 <img src="https://spotify-github-profile.kittinanx.com/api/view?　　　　　　　　uid=31dijzczo5lfhxmq6mr3nalipx6e&cover_image=true&theme=default&show_offline=false&background_color=361a37&interchange=true&profanity=false&bar_color=808080&b　　　　ar_color_cover=true">
 　　　　  </a>
 　　　　</p>
