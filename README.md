@@ -2,11 +2,13 @@
 
 🍰    ;  i'm a fictionkin, MOST of the ponies i use/make are kins but NOT all of them!
 
-🍰    ;  6teen, adults dni
+🍰    ;  6teen, adults dni (+ basic dni criteria)
 
 🍰    ;  c+h is always okay and encouraged, i promise i dont bite!
 
 🍰    ;  multifandom + multishipper
+
+🍰    ;  i have VERY strong morals, and block freely. 
 
 🍰    ;  ships are welcome to int!
 
@@ -16,4 +18,4 @@
 
 🍰    ;  sign ata! ---> https://bachiisagi.atabook.org
 
-🍰    ;  be kind to yourself, okay?
+🍰    ;  be kind to yourself and others, okay?
