@@ -2,13 +2,15 @@
 
 
 
-🍰    ;  hi this is like my main general github but my specific ones r linked
-
 🍰    ;  i'm a fictionkin, MOST of the ponies i use/make are kins but NOT all of them!
 
 🍰    ;  6teen, adults dni (+ basic dni criteria)
 
-🍰    ;  c+h is always okay and encouraged, i promise i dont bite!
+🍰    ;  c+h is always okay and encouraged, i promise i dont bite! i love making friends, so please int!!
+
+🍰    ;  only interact with me if you're a nice person, don't be those people who claim theyre nice but then are only nice to their friends
+
+🍰    ;  keep your drama away from me, i have no interest in it, but i WILL call you out if you're being an ass
 
 🍰    ;  multifandom, multishipper, rarepair enjoyer
 
@@ -16,10 +18,14 @@
 
 🍰    ;  i have diagnosed severe social anxiety and suspected chronic fatigue, please be patient with me
 
-🍰    ;  do not copy my ponies, ask for inspo
+🍰    ;  do not copy my ponies, ASK for inspo.
 
-🍰    ;  feel free to add my discord (@kippfish) if you'd like, but please say that you're from pt or ill be very confused
+🍰    ;  feel free to add my discord (@kippfish) if you'd like, but please say that you're from pt or ill be very confused!!
+
+🍰    ;  carrd ---> https://kippfish.carrd.co
 
 🍰    ;  sign ata! ---> https://bachiisagi.atabook.org
 
-🍰    ;  be kind to yourself and others, okay! ^_^!!
+🍰    ;  fav chars + ships ---> https://fishing4kipp.carrd.co
+
+🍰    ;  be kind to yourself and others, okay! ^_^!! reki out!
