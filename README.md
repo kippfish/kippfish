@@ -12,6 +12,8 @@
 
 🍰    ;  keep your drama away from me, i have no interest in it, but i WILL call you out if you're being an ass
 
+🍰    ;  using the chat can cause me great anxiety sometimes, so there may be times i will only use pony actions, it is still okay to interact at these times, just note i will likely not be talking, this is usually when i have some form of 'iwc' or 'dniu' in my name
+
 🍰    ;  multifandom, multishipper, rarepair enjoyer
 
 🍰    ;  mediamates are always welcome to int, as well as any ships! 
