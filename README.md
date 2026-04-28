@@ -14,7 +14,7 @@
 
 🍰    ;  keep your drama away from me, i have no interest in it, but i WILL call you out if you're being an ass
 
-🍰    ;  using the chat can cause me great anxiety sometimes, so there may be times i will only use pony actions, it is still okay to interact at these times, just note i will likely not be talking, this is usually when i have some form of 'iwc' or 'dniu' in my name
+🍰    ;  using the chat can cause me great anxiety sometimes, so there may be times i will only use pony actions, its still absolutely okay to interact at these times, just note i will likely not be talking or only very selective whispers. i usually try to be holding a flower at these times 
 
 🍰    ;  multifandom, multishipper, rarepair enjoyer
 
@@ -30,6 +30,6 @@
 
 🍰    ;  sign ata! ---> https://bachiisagi.atabook.org
 
-🍰    ;  fav chars + ships ---> https://fishing4kipp.carrd.co
+🍰    ;  fav chars/comfs + ships ---> https://fishing4kipp.carrd.co
 
 🍰    ;  be kind to yourself and others, okay! ^_^!! reki out!
