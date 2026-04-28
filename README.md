@@ -2,7 +2,9 @@
 
 
 
-🍰    ;  i'm a fictionkin, MOST of the ponies i use/make are kins but NOT all of them!
+🍰    ;  this is my main github but i do have others
+
+🍰    ;  i'm a fictionkin, reki is one of my highest kins and i classify him as an ID/selfhood 
 
 🍰    ;  6teen, adults dni (+ basic dni criteria)
 
@@ -22,7 +24,7 @@
 
 🍰    ;  do not copy my ponies, ASK for inspo.
 
-🍰    ;  feel free to add my discord (@kippfish) if you'd like, but please say that you're from pt or ill be very confused!!
+🍰    ;  you can add my discord (@kippfish) if you'd like, but please say who you are/that ur from pt!
 
 🍰    ;  carrd ---> https://kippfish.carrd.co
 
