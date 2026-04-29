@@ -31,10 +31,10 @@
 🍰    ;  be kind to yourself and others, okay! ^_^!! reki out!
 
 <img width="1200" height="10" alt="b70ab07e" src="https://github.com/user-attachments/assets/b8219fcb-8518-45f2-9c00-6b36e039a613" />
-
+<p align="center">
    carrd ---> https://kippfish.carrd.co
-  sign ata! ---> https://bachiisagi.atabook.org
-fav chars/comfs + ships ---> https://fishing4kipp.carrd.co
+  ata ---> https://bachiisagi.atabook.org
+fav chars + ships ---> https://fishing4kipp.carrd.co
 
 
 <p align="center">
