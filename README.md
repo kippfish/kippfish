@@ -47,6 +47,17 @@ fav chars/comfs + ships ---> https://fishing4kipp.carrd.co
   <img height="40" src="https://github.com/user-attachments/assets/bd032780-e488-4abd-9dcd-76262ebca8ea" width="30%" />
   <img height="40" src="https://github.com/user-attachments/assets/ac2202f1-b50e-43e7-9c6b-e334894f17d1" width="30%" />
 </p>
+<p align="center">
+  <img height="40" src="https://github.com/user-attachments/assets/49c4d886-708b-4cfe-a986-3f31c894b7b1" width="30%" />
+  <img height="40" src="https://github.com/user-attachments/assets/b4b00ccb-2f92-4bde-90bf-d5a189d1cc97" width="30%" />
+  <img height="40" src="https://github.com/user-attachments/assets/8b19cc25-4b21-440e-a5b9-f53439f3cf69" width="30%" />
+</p>
+<p align="center">
+  <img height="40" src="https://github.com/user-attachments/assets/49c4d886-708b-4cfe-a986-3f31c894b7b1" width="30%" />
+  <img height="40" src="https://github.com/user-attachments/assets/b4b00ccb-2f92-4bde-90bf-d5a189d1cc97" width="30%" />
+  <img height="40" src="https://github.com/user-attachments/assets/8b19cc25-4b21-440e-a5b9-f53439f3cf69" width="30%" />
+</p>
+
 
 
 
