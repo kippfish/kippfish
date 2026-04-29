@@ -1,4 +1,5 @@
-<img width="1200" height="846" alt="image" src="https://github.com/user-attachments/assets/f6e01952-1d40-412f-8031-7e5dbe5e678d" />
+<img width="1200" height="500" alt="sk8-sk8-ova (1)" src="https://github.com/user-attachments/assets/0f378a3d-07a1-425a-a98e-84f63e7186ce" />
+<img width="1200" height="20" alt="01" src="https://github.com/user-attachments/assets/0eb6377d-2e3e-4c63-9aae-597f8d736117" />
 
 
 
@@ -26,10 +27,12 @@
 
 🍰    ;  you can add my discord (@kippfish) if you'd like, but please say who you are/that ur from pt!
 
-🍰    ;  carrd ---> https://kippfish.carrd.co
 
-🍰    ;  sign ata! ---> https://bachiisagi.atabook.org
+<img width="1200" height="10" alt="b70ab07e" src="https://github.com/user-attachments/assets/b8219fcb-8518-45f2-9c00-6b36e039a613" />
 
-🍰    ;  fav chars/comfs + ships ---> https://fishing4kipp.carrd.co
+
+   carrd ---> https://kippfish.carrd.co
+  sign ata! ---> https://bachiisagi.atabook.org
+fav chars/comfs + ships ---> https://fishing4kipp.carrd.co
 
 🍰    ;  be kind to yourself and others, okay! ^_^!! reki out!
