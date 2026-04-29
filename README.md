@@ -27,12 +27,17 @@
 
 🍰    ;  you can add my discord (@kippfish) if you'd like, but please say who you are/that ur from pt!
 
+🍰    ;  be kind to yourself and others, okay! ^_^!! reki out!
 
 <img width="1200" height="10" alt="b70ab07e" src="https://github.com/user-attachments/assets/b8219fcb-8518-45f2-9c00-6b36e039a613" />
-
 
    carrd ---> https://kippfish.carrd.co
   sign ata! ---> https://bachiisagi.atabook.org
 fav chars/comfs + ships ---> https://fishing4kipp.carrd.co
 
-🍰    ;  be kind to yourself and others, okay! ^_^!! reki out!
+
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/ec3d540a-cf0e-4039-9f44-ea477d295e1e" width="30%" />
+  <img src="https://github.com/user-attachments/assets/fa2e7d9b-d670-41e9-bf16-60611e394c95" width="30%" />
+  <img src="https://github.com/user-attachments/assets/0bf90e46-adbb-4c50-974f-a3a688905608" width="30%" />
+</p>
