@@ -1,7 +1,5 @@
 <img width="1200" height="600" alt="a3e8d3193e0dfff24868a9b4b02d64ca (1)" src="https://github.com/user-attachments/assets/222f309d-22b3-4408-9add-5f46d3f15601" />
-
 <img width="1200" height="20" alt="01" src="https://github.com/user-attachments/assets/0eb6377d-2e3e-4c63-9aae-597f8d736117" />
-
 
 <p align="center">
 <b>this is my main github but i do have others
@@ -20,7 +18,7 @@ using the chat can cause me great anxiety sometimes, so there may be times i wil
 <p align="center">
 multifandom, multishipper, rarepair enjoyer
 <p align="center">
-mediamates are always welcome to int, as well as any ships! 
+mediamates are always welcome to int, as well as ships! 
 <p align="center">
 i have diagnosed severe social anxiety and suspected chronic fatigue, please be patient with me
 <p align="center">
@@ -30,15 +28,11 @@ you can add my discord (@kippfish) if you'd like, but please say who you are/tha
 <p align="center">
 be kind to yourself and others, okay! ^_^!! reki out!
 
-
-
-
 <img width="1200" height="10" alt="b70ab07e" src="https://github.com/user-attachments/assets/b8219fcb-8518-45f2-9c00-6b36e039a613" />
 <p align="center">
    carrd ---> https://kippfish.carrd.co
   ata ---> https://bachiisagi.atabook.org
 fav chars + ships ---> https://fishing4kipp.carrd.co
-
 
 <p align="center">
   <img src="https://github.com/user-attachments/assets/ec3d540a-cf0e-4039-9f44-ea477d295e1e" width="30%" />
