@@ -4,7 +4,7 @@
 
 
 <p align="center">
-<b><this is my main github but i do have others
+<b>this is my main github but i do have others
 <p align="center">
 i'm a fictionkin, reki is one of my highest kins and i classify him as an ID/selfhood
 <p align="center">
