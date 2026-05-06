@@ -4,15 +4,15 @@
 <p align="center">
 <b>this is my main github but i do have others
 <p align="center">
-i'm a fictionkin, reki is one of my highest kins and i classify him as an ID/selfhood
+i'm a fictionkin, reki ID/selfhood
 <p align="center">
-6teen, adults dni (+ basic dni criteria)
+16 turning 17 soon, adults dni and below 14 dni (+ basic dni criteria)
 <p align="center">
 c+h is always okay and encouraged, i promise i dont bite! i love making friends, so please int!!
 <p align="center">
-only interact with me if you're a nice person, don't be those people who claim theyre nice but then are only nice to their friends
+most commonly using my mechanic reki pony.... if you see me say hi!!!
 <p align="center">
-keep your drama away from me, i have no interest in it, but i WILL call you out if you're being an ass
+keep your drama away from me, i have no interest in it, but i WILL call you out if you're being an ass. also, it's called safe server for a reason, don't be a huge freak in public chat, i just find it unnecessary and weird
 <p align="center">
 using the chat can cause me great anxiety sometimes, so there may be times i will only use pony actions, its still absolutely okay to interact at these times, just note i will likely not be talking or only very selective whispers. i usually try to be holding a flower at these times 
 <p align="center">
