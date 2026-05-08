@@ -6,7 +6,7 @@
 <p align="center">
 i'm a fictionkin, reki ID/selfhood
 <p align="center">
-16 turning 17 soon, adults dni and below 14 dni (+ basic dni criteria)
+16 turning 17 soon, 20+ and 13- dni (if i interact and you're younger/older than these, i likely was not aware!), i tend to see anyone younger than 15 as a little sibling
 <p align="center">
 c+h is always okay and encouraged, i promise i dont bite! i love making friends, so please int!!
 <p align="center">
@@ -14,7 +14,7 @@ most commonly using my mechanic reki pony.... if you see me say hi!!!
 <p align="center">
 keep your drama away from me, i have no interest in it, but i WILL call you out if you're being an ass. also, it's called safe server for a reason, don't be a huge freak in public chat, i just find it unnecessary and weird
 <p align="center">
-using the chat can cause me great anxiety sometimes, so there may be times i will only use pony actions, its still absolutely okay to interact at these times, just note i will likely not be talking or only very selective whispers. i usually try to be holding a flower at these times 
+using the chat can cause me great anxiety sometimes, so there may be times i will only use pony actions, its still absolutely okay to interact at these times, just note i will likely not be talking or only very selective whispers
 <p align="center">
 multifandom, multishipper, rarepair enjoyer
 <p align="center">
@@ -24,9 +24,11 @@ i have diagnosed severe social anxiety and suspected chronic fatigue, please be 
 <p align="center">
 do not copy my ponies, ASK for inspo!
 <p align="center">
-you can add my discord (@kippfish) if you'd like, but please say who you are/that ur from pt! </b>
+you can add my discord (@kippfish) if you'd like, im a lot more active on there, but please say who you are/that ur from pt! </b>
 <p align="center">
-DNI: the freak circus, tcoaal, any vivziepop media, ai supporters, proshippers, maga ; IWC: hetalia, tadc, forsaken, dsmp, joking abt srs topics
+DNI: basic dni criteria, the freak circus, tcoaal, any vivziepop media, ai supporters, proshippers, maga ; IWC: hetalia, tadc, forsaken, dsmp, joking abt srs topics
+<p align="center">
+biggest fandoms/interests atm: Identity V, Sk8 The Infinity, Genshin Impact, Studio Investigrave, Honkai Star Rail, Ensemble Stars, Link Click, Formula 1, Cookie Run Kingdom, Project Hail Mary, Stranger Things, My Hero Academia, Gachiakuta, Paradox Live, Servamp, Bungou Stray Dogs, Blue Lock, Terror In Resonance, Death Note, South Park, Lego Ninjago, Riordanverse, Epic The Musical, Visual Kei genre, Twisted Wonderland, Voltron, Kingdom Hearts, Date Everything, Omori, Don't Starve, Haikyuu, Hypnosis Mic, The Summer Hikaru Died, Ouran Highschool Host Club, ETC!
 <p align="center">
 be kind to yourself and others, okay! ^_^!! reki out!
 
