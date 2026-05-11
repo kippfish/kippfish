@@ -10,8 +10,6 @@ i'm a fictionkin, reki ID/selfhood
 <p align="center">
 c+h is always okay and encouraged, i promise i dont bite! i love making friends, so please int!!
 <p align="center">
-most commonly using my mechanic reki pony.... if you see me say hi!!!
-<p align="center">
 keep your drama away from me, i have no interest in it, but i WILL call you out if you're being an ass. also, it's called safe server for a reason, don't be a huge freak in public chat, i just find it unnecessary and weird
 <p align="center">
 using the chat can cause me great anxiety sometimes, so there may be times i will only use pony actions, its still absolutely okay to interact at these times, just note i will likely not be talking or only very selective whispers
@@ -28,7 +26,7 @@ you can add my discord (@kippfish) if you'd like, im a lot more active on there,
 <p align="center">
 DNI: basic dni criteria, the freak circus, tcoaal, any vivziepop media, ai supporters, proshippers, maga ; IWC: hetalia, tadc, forsaken, dsmp, joking abt srs topics
 <p align="center">
-biggest fandoms/interests atm: Identity V, Sk8 The Infinity, Genshin Impact, Studio Investigrave, Honkai Star Rail, Ensemble Stars, Link Click, Formula 1, Cookie Run Kingdom, Project Hail Mary, Stranger Things, My Hero Academia, Gachiakuta, Paradox Live, Servamp, Bungou Stray Dogs, Blue Lock, Terror In Resonance, Death Note, South Park, Lego Ninjago, Riordanverse, Epic The Musical, Visual Kei genre, Twisted Wonderland, Voltron, Kingdom Hearts, Date Everything, Omori, Don't Starve, Haikyuu, Hypnosis Mic, The Summer Hikaru Died, Ouran Highschool Host Club, ETC!
+biggest fandoms/interests atm: Identity V, Sk8 The Infinity, Genshin Impact, Studio Investigrave, Honkai Star Rail, Ensemble Stars, Link Click, Formula 1, Cookie Run Kingdom, Project Hail Mary, Stranger Things, Danganronpa, My Hero Academia, Gachiakuta, Paradox Live, Servamp, Bungou Stray Dogs, Blue Lock, Terror In Resonance, Death Note, South Park, Lego Ninjago, Riordanverse, Epic The Musical, Visual Kei genre, Twisted Wonderland, Voltron, Kingdom Hearts, Date Everything, Omori, Don't Starve, Haikyuu, Hypnosis Mic, The Summer Hikaru Died, Ouran Highschool Host Club, ETC!
 <p align="center">
 be kind to yourself and others, okay! ^_^!! reki out!
 
